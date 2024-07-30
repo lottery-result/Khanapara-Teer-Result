@@ -1,4 +1,4 @@
-## khanapara Teer Result List Today 2024 | [**LIVE] Update
+## **KHANAPARA Teer Result List Today 2024 | [**LIVE] Update
 
 
 Khanapara Teer Result isn't just a game - it's a cultural phenomenon that's taken Meghalaya by storm.
