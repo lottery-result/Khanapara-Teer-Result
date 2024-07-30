@@ -1,0 +1,1 @@
+# Khanapara-Teer-Result
